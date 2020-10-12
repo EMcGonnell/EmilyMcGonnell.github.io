@@ -1,1 +1,1 @@
-# EmilyMcGonnell.github.io
+# emilymcgonnell.github.io
